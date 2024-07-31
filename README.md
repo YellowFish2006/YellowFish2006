@@ -2,4 +2,4 @@
 - 🌱 I’m currently learning C programming language
 - 📫 How to reach me:QQ3972139940
 - (●'◡'●) Look foward to you.
-- i'm a green hands,hope to find someone to teach me.
+- i'm a tyro,hope to find someone to teach me.
